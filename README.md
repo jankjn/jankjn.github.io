@@ -1,1 +1,0 @@
-## jankjn's blog
